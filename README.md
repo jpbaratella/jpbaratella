@@ -5,5 +5,5 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - ### Você pode entrar em contato comigo 📫
 
-joao.casula@escola.pr.gov.br
-@João Pedro Baratella Casula
+joao.casula@escola.pr.gov.br @Baratella
+
