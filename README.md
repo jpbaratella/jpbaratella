@@ -6,3 +6,7 @@
 - ### Você pode entrar em contato comigo 📫
 
 joao.casula@escola.pr.gov.br @Baratella
+
+
+
+![](https://tenor.com/pt-BR/view/fast-car-gif-22098603)
