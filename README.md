@@ -8,4 +8,4 @@
 joao.casula@escola.pr.gov.br @Baratella
 
 
-![](https://tenor.com/pt-BR/view/fast-car-gif-22098603)
+![](<div class="tenor-gif-embed" data-postid="22098603" data-share-method="host" data-aspect-ratio="1.64948" data-width="100%"><a href="https://tenor.com/view/fast-car-gif-22098603">Fast Car GIF</a>from <a href="https://tenor.com/search/fast-gifs">Fast GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
